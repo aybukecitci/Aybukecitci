@@ -33,7 +33,7 @@ Data enthusiast with a background in Industrial Engineering and Sales Operations
 
 ### 📫 Connect with Me
 
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/aybukecitci/)
+www.linkedin.com/in/aybüke-çitçi-18216613a
 
 ---
 ⭐️ From [AybukeCitci](https://github.com/AybukeCitci)
